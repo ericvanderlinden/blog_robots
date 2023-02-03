@@ -11,6 +11,7 @@ We denken bij automatisering die mensen vervangt al snel aan een robot, van de Ã
 
 De BOSS BOT zoals QZ het noemt of de The boss machine van Business Insider is ook geen science fiction meer, in de rangen van het middle management is de kaalslag al begonnen en voor het hoogste segment komen programma's op de markt.
 
+een voorbeeld.
 
 
 In het jaar 2033 is Ems de baas van een Nederlands multinationaal bedrijf. 
